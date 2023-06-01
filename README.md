@@ -5,7 +5,7 @@
 
 
 
-- 🌱 I’m currently learning **AI/ML**
+- 🌱 I’m enthusiastic about **Cybersecurity**
 
 - 📫 How to reach me **poushalic07@gmail.com**
 
