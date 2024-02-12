@@ -5,7 +5,7 @@
 
 
 
-- 🌱 I’m enthusiastic about **Cybersecurity**
+- 🌱 I’m enthusiastic about **Technology that drives the world.**
 
 - 📫 How to reach me **poushalic07@gmail.com**
 
